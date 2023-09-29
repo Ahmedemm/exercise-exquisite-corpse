@@ -7,4 +7,7 @@ Le titre en poche, l'escargot célébra sa victoire avec une fête mémorable, o
 
 Un jour, Hector décida de quitter son village pour suivre son rêve musical. Il prit sa guitare et partit à l'aventure, déterminé à conquérir le monde de la musique. Sa quête de renommée commença ce jour-là...
 
+Pendant des années, les habitants de la forêt enchantée chuchotèrent des théories, se demandant si c'était l'esprit joueur des lucioles ou la magie des étoiles qui avait provoqué cet étrange phénomène. Certains prétendaient avoir entendu les arbres murmurer des histoires anciennes, évoquant un pacte secret avec la lune. Quelle que soit la vérité, cette nuit farfelue resta gravée dans les mémoires, rappelant à tous que la magie pouvait surprendre même les plus sages des sages chênes. Et ainsi, la forêt enchantée continua de prospérer, gardant jalousement ses mystères, tout en offrant aux curieux une danse de l'imagination à chaque clair de lune.
+
 Dès qu'Hector pénétra dans la forêt enchantée, il fut témoin de la danse extravagante des arbres. Intrigué, il s'arrêta pour observer, sa guitare à la main. Le chef des arbres, le vieux chêne sage, le repéra et l'invita à participer au concours de danse farfelue. Hector, confiant dans ses talents, accepta le défi.
+
