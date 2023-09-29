@@ -6,3 +6,5 @@ Le chef des arbres, un vieux chêne sage, annonça qu'ils avaient décidé de la
 Le titre en poche, l'escargot célébra sa victoire avec une fête mémorable, où tous les habitants dansèrent jusqu'à l'aube. Cependant, au lever du soleil, la forêt retrouva sa quiétude habituelle, laissant derrière elle un mystère inexpliqué : pourquoi la forêt avait-elle décidé de se montrer si farfelue cette nuit-là ? La réponse, enfouie dans ses secrets, demeura un mystère pour tous.
 
 Un jour, Hector décida de quitter son village pour suivre son rêve musical. Il prit sa guitare et partit à l'aventure, déterminé à conquérir le monde de la musique. Sa quête de renommée commença ce jour-là...
+
+Dès qu'Hector pénétra dans la forêt enchantée, il fut témoin de la danse extravagante des arbres. Intrigué, il s'arrêta pour observer, sa guitare à la main. Le chef des arbres, le vieux chêne sage, le repéra et l'invita à participer au concours de danse farfelue. Hector, confiant dans ses talents, accepta le défi.
