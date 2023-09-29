@@ -11,3 +11,4 @@ Pendant des années, les habitants de la forêt enchantée chuchotèrent des th�
 
 Dès qu'Hector pénétra dans la forêt enchantée, il fut témoin de la danse extravagante des arbres. Intrigué, il s'arrêta pour observer, sa guitare à la main. Le chef des arbres, le vieux chêne sage, le repéra et l'invita à participer au concours de danse farfelue. Hector, confiant dans ses talents, accepta le défi.
 
+Hector, avec sa guitare, impressionna tant la forêt qu'il devint le "Danseur de la Forêt Farfeleu". Sa musique légendaire attira des visiteurs du monde entier pour découvrir la magie de la forêt enchantée, qui continua de révéler ses mystères dansants sous la lueur de la lune.
