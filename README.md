@@ -16,3 +16,10 @@ Hector, avec sa guitare, impressionna tant la forêt qu'il devint le "Danseur de
 Hector trébucha sur une branche et retourna dans la matrice.
 Malheureusement cette branche étais connecté à une autre branche et sa chutte fut plus compliqué que prévue.
 Mais forte heuresement pour lui il n'a pas croisé de main ici bas.
+
+"Le soleil brillait dans le ciel, répandant sa douce chaleur sur la ville endormie. Les oiseaux gazouillaient joyeusement, annonçant l'arrivée d'une nouvelle journée. Les rues étaient calmes, baignées dans une tranquillité apaisante."
+
+
+
+
+
