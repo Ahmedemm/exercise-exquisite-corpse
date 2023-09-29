@@ -25,3 +25,5 @@ Mais forte heuresement pour lui il n'a pas croisé de main ici bas.
 
 Le chef des arbres, un vieux chêne sage, annonça qu'ils avaient décidé de lancer un concours de danse pour tous les habitants de la forêt. Les animaux se préparèrent rapidement, répétant des mouvements extravagants et des pas de danse inattendus. La compétition s'annonçait comme le spectacle le plus farfelu jamais vu dans la forêt enchantée.
 
+Correction by Ahmed : **Perfect** 
+
